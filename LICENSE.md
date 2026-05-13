@@ -1,4 +1,4 @@
-# 
+# ClickUp for Windows new Extension: calendar-view & reminders is the best ClickUp for Windows extension, featuring calendar-view and reminders. Powerful, efficient, and optimized
 
 
 
